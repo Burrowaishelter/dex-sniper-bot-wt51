@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with updated dex sniper bot | cross-chain-arbitrage + staking-integration, the #1 dex sniper bot. Includes cross-chain-arbitrage and staking-integration for a
 
 
 
